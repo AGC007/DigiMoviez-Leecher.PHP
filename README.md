@@ -1,6 +1,6 @@
 # 💥 [-DigiMoviez-Leecher-APi-[V1] By AGC007™-] 💥
 
-![image](https://github.com/user-attachments/assets/c7c7125b-bee0-4d4a-9332-6401c0d52940)
+![image](https://github.com/user-attachments/assets/9f2e7bc0-7202-411a-a300-dfebb53cd635)
 
 
 - DigiMoviez Leech All Movie and Series ✅
